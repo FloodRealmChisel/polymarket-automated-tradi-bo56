@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket quantitative Algorithm: scalping-strategies & order-book-analysis, the #1 algorithm. Includes scalping-strategies and
 
 
 
